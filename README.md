@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Zahit @zahitworks
-- 👀 I’m interested in build web system.
+- 👀 I’m interested in make work easier.
 - 📫 Email me @ zahit.works@gmail.com
